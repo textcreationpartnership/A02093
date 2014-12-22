@@ -38,21 +38,29 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Theeues falling out, true-men come by their goods: or, The belman wanted a clapper A peale of new vi
+
+1. To all Gentlemen,
+Marchants• Apprentises,
+and Countrie• Farmers,
+health.
+
 #####Body#####
 
-1. A pleasant Tale of a Country Farmer, that tooke it in
+1. A Disputation betweene
+a Hee-Foyst, and a Shee-Foyst.
+
+    _ A pleasant Tale of a Country Farmer, that tooke it in
 scorne to haue his Pursecut or drawne fro•
 him, and how a Foyst serued hi•.
 
-1. A passing pleasant Tale, how a whore
+    _ A passing pleasant Tale, how a whore
 Conny-catcht a Foyst.
 
-1. The conuersion of an English Courtezan.
+    _ The conuersion of an English Courtezan.
 
-1. A w•tch-word to want on Maidens.
+    _ A w•tch-word to want on Maidens.
 
-1. A pleasan• discourse how a wise wanton by her Husbands
+    _ A pleasan• discourse how a wise wanton by her Husbands
 gentle warning, became to bee a modest Matron.
 
 **Types of content**
